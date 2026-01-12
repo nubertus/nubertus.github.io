@@ -1,4 +1,4 @@
-# Nubers Flomarkt
+# Nubers Flohmarkt
 
 Was auf dem Tisch liegt, kann gratis abgeholt werden. Komm vorbei, nimm, was du willst. Bis Mitte April werden immer wieder neue Dinge auf dem Tisch liegen. Die Fotos werden regelmässig aktualisiert.
 
