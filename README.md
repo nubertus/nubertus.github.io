@@ -10,4 +10,4 @@ Was auf dem Tisch liegt, kann gratis abgeholt werden. Komm vorbei, nimm, was du 
 
 ## was gad hät
 
-![stuff](https://github.com/nubertus/nubertus.github.io/blob/38fb4c49761494d550339eaa87a5f08b2ea188af/P_20260112_215955.jpg)
+![stuff](P_20260112_215955.jpg)
