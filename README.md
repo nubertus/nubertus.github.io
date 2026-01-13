@@ -13,3 +13,13 @@ Was auf dem Tisch liegt, kann gratis abgeholt werden. Komm vorbei, nimm, was du 
 ## was gad hät
 
 ![stuff](P_20260112_215955.jpg)
+
+![stuff](P_20260112_215950.jpg)
+
+![stuff](P_20260112_215825.jpg)
+
+![stuff](P_20260112_215817.jpg)
+
+![stuff](P_20260112_215808.jpg)
+
+![tisch](tisch.png)
