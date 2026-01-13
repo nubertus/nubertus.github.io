@@ -20,6 +20,4 @@ Was auf dem Tisch liegt, kann gratis abgeholt werden. Komm vorbei, nimm, was du 
 
 ![stuff](P_20260112_215817.jpg)
 
-![stuff](P_20260112_215808.jpg)
-
 ![tisch](tisch.png)
