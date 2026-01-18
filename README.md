@@ -12,14 +12,14 @@ Was auf dem Tisch liegt, kann gratis abgeholt werden. Komm vorbei, nimm, was du 
 
 ## was gad hät
 
-![kuscheltiere](P_20260118_132955.jpg)
+![Kuscheltiere](P_20260118_132955.jpg)
 
-![stuff](P_20260112_215955.jpg)
+![Platten](P_20260112_215955.jpg)
 
-![stuff](P_20260112_215950.jpg)
+![Guetzli](P_20260112_215950.jpg)
 
-![stuff](P_20260112_215825.jpg)
+![Becher](P_20260112_215825.jpg)
 
-![stuff](P_20260114_120253_1.jpg)
+![Noten](P_20260114_120253_1.jpg)
 
-![tisch](tisch.png)
+![Tisch](tisch.png)
