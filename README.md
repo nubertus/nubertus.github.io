@@ -12,6 +12,8 @@ Was auf dem Tisch liegt, kann gratis abgeholt werden. Komm vorbei, nimm, was du 
 
 ## was gad hät
 
+![kuscheltiere](P_20260118_132955.jpg)
+
 ![stuff](P_20260112_215955.jpg)
 
 ![stuff](P_20260112_215950.jpg)
