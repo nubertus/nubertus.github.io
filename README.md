@@ -26,8 +26,6 @@ Was auf dem Tisch liegt, kann gratis abgeholt werden. Komm vorbei, nimm, was du 
 
 ![Physik](P_20260204_105622.jpg)
 
-![Mathehefte](P_20260204_105638.jpg)
-
 ![Geophysik](P_20260204_105629.jpg)
 
 ![Tisch](tisch.png)
