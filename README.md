@@ -14,18 +14,14 @@ Was auf dem Tisch liegt, kann gratis abgeholt werden. Komm vorbei, nimm, was du 
 
 ![Kuscheltiere](P_20260118_132955.jpg)
 
-![Schmuck](P_20260118_182038.jpg)
-
 ![Noten](P_20260114_120253_1.jpg)
-
-![Platten](P_20260112_215955.jpg)
-
-![Guetzli](P_20260112_215950.jpg)
 
 ![Becher](P_20260112_215825.jpg)
 
 ![Physik](P_20260204_105622.jpg)
 
 ![Geophysik](P_20260204_105629.jpg)
+
+![AKAD](P_20260219_100958.jpg)
 
 ![Tisch](tisch.png)
