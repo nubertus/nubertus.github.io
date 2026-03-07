@@ -12,6 +12,8 @@ Was auf dem Tisch liegt, kann gratis abgeholt werden. Komm vorbei, nimm, was du 
 
 ## was gad hät
 
+![Snowboard](P_20260307_163342.jpg)
+
 ![Freitag](P_20260225_112717.jpg)
 
 ![Kittel_grau](P_20260225_114315.jpg)
