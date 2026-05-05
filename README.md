@@ -1,37 +1,5 @@
-# Nubers Flohmarkt
+# Check before you click!
 
-Wir ziehen um. Ab Mitte April findet man uns ännet dä Ganggelibrugg. Vorher ist Entrümpeln angesagt. 
+Bist du sicher, dass du auf dieser Webseite landen wolltest? Überprüfe deine Links, bevor du drauf klickst. Die gängisten Internet Browser und E-Mail-Programme zeigen in der Statusleiste an, auf welcher Seite du landest, wenn du den Link anklickst. 
 
-Was auf dem Tisch liegt, kann gratis abgeholt werden. Komm vorbei, nimm, was du willst. Bis zum Umzug werden immer wieder neue Dinge auf dem Tisch liegen. Die Fotos werden regelmässig aktualisiert.
-
-## Spielregeln
-
-- keine Reservationen
-- keine Lieferung
-- s'hät, was gad hät
-
-## was gad hät
-
-![Snowboard](P_20260307_163342.jpg)
-
-![Boots](P_20260307_164415.jpg)
-
-![Freitag](P_20260225_112717.jpg)
-
-![Kittel_grau](P_20260225_114315.jpg)
-
-![Anzug_blau](P_20260225_114507.jpg)
-
-![Anzug_Nadelstreifen](P_20260225_114605.jpg)
-
-![Kittel_Nadelstreifen](P_20260225_114654.jpg)
-
-![Becher](P_20260112_215825.jpg)
-
-![Physik](P_20260204_105622.jpg)
-
-![Geophysik](P_20260204_105629.jpg)
-
-![AKAD](P_20260219_100958.jpg)
-
-![Tisch](tisch.png)
+![Hacker](hacker.jpg)
